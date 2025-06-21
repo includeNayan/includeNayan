@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm currently 3rd year CSE undergraduate at NIT Silchar.
+I'm currently final year CSE undergraduate at NIT Silchar.
 
 
 ## 🌐 Socials:
